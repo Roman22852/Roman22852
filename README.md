@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Roman22852
+- 👋 Hi, I’m Roma
 - 👀 I’m interested in IT
 - 🌱 I’m currently learning IT
 - 💞️ I’m looking to collaborate on IT
